@@ -1,10 +1,9 @@
 # OctaNet SW. Services Internship Offer
 
 **Support:** support@octanet.in  
-**Location:** Bhubaneswar, Odisha  
-**Date:** July 15, 2023  
+ **Date:** July 15, 2023  
 
-## Dear Vinay Kumar,
+## Dear rohithganehsh S,
 
 **Congratulations!**
 
